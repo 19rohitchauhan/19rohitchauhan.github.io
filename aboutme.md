@@ -12,5 +12,5 @@ Exceptional business and analytical skills and ability to run entire sales cycle
 I have proven abilities to understand and execute the organization's sales strategy in order to ensure short-term and long-term growth and profitability.
 Business acumen, strong analytical skills and the ability to interpret data and offer insight and recommendations into business opportunities.
 Strong presentation, communication and negotiation skills. and never afraid to try or learn things .
-What else do you need?
+
 
